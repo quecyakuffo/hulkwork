@@ -1,1 +1,1 @@
-the entire universe is powered by the sun
+the entire universe is powered by the moon
